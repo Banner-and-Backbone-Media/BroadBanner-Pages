@@ -1,4 +1,4 @@
-![Palantalk Banner](/assets/PALANTALK_BANNER.png)
+![Palantalk Banner](../assets/PALANTALK_BANNER.png)
 
 #### _Palantalk - where we like "tech, no fascism"_ with [Nick Paro](https://substack.com/@nickparo) and [Shane Yirak](https://substack.com/@shaneyirak).
 
@@ -8,9 +8,9 @@
 
 # Episode Review Articles
 
-- [S1, E29 - No, More War](./PALAN_s1e29_2026-03-03.md)
-- [S2, E30 - The War For Tech Profits](./PALAN_s1e30_2026-03-09.md)
-- [S2, E31 \- The War Wages On](./PALAN_s1e31_2026-03-16.md)
+- [S1, E29 - No, More War](../episode-reviews/PALAN_s1e29_2026-03-03.md)
+- [S2, E30 - The War For Tech Profits](../episode-reviews/PALAN_s1e30_2026-03-09.md)
+- [S2, E31 \- The War Wages On](../episode-reviews/PALAN_s1e31_2026-03-16.md)
 
 ---
 
