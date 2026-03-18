@@ -10,7 +10,7 @@
 
 ## Contents
 
-- [Episode Reviews](/intelligent-masculinity/episode-reviews/README.md)
+- [Episode Reviews](./episode-reviews/README.md)
 
 ---
 
