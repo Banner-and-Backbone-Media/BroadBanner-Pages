@@ -1,6 +1,6 @@
-![Palantalk Banner](../../assets/PALANTALK_BANNER.png)
+![Anti Fascist Book Club Banner](../assets/AFBC_BANNER.png)
 
-#### _Palantalk - where we like "tech, no fascism"_ with [Nick Paro](https://substack.com/@nickparo) and [Shane Yirak](https://substack.com/@shaneyirak).
+#### _Teaching, Empowering, and Organizing to go on offense against fascism_ with [Nick Paro](https://substack.com/@nickparo), Kristofer Goldsmith, Tara Devlin, and more.
 
 ##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
 
@@ -10,9 +10,7 @@
 
 # Episode Review Articles
 
-- [S1, E29 - No, More War](../episode-reviews/PALAN_s1e29_2026-03-03.md)
-- [S2, E30 - The War For Tech Profits](../episode-reviews/PALAN_s1e30_2026-03-09.md)
-- [S2, E31 \- The War Wages On](../episode-reviews/PALAN_s1e31_2026-03-16.md)
+- Check back soon for more
 
 ---
 
@@ -22,6 +20,6 @@ _The America we strive for — it is one where we willingly remember the teachin
 
 ##### Support and subscribe to [Banner & Backbone](https://substack.com/@bannerandbackbone) now for only $5 a month or $50 annually!
 
-### _Palantalk Team_
+### _Anti Fascist Book Club Team_
 
-~ [Nick Paro](https://substack.com/@nickparo) \| [Shane Yirak](https://substack.com/@shaneyirak) ~
+~ [Nick Paro](https://substack.com/@nickparo) \| [Kristofer Goldsmith]() \| [Tara Devlin]() ~

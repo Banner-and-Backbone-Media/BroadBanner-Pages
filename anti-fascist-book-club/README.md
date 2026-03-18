@@ -1,4 +1,6 @@
-![Banner and Backbone Media Banner](/assets/BANNER_AND_BACKBONE_BANNER.png)
+![Anti Fascist Book Club Banner](../assets/AFBC_BANNER.png)
+
+#### _Teaching, Empowering, and Organizing to go on offense against fascism_ with [Nick Paro](https://substack.com/@nickparo), Kristofer Goldsmith, Tara Devlin, and more.
 
 ##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
 
@@ -6,16 +8,9 @@
 
 ---
 
-## Series
+## Contents
 
-### Banner & Backbone Media
-
-- [Anti Fascist Book Club](/afbc/README.md)
-- [Palantalk](/palantalk/README.md)
-
-### Sick of this Shit Publications
-
-- [Intelligent Masculinity](/intelligent-masculinity/README.md)
+- [Episode Reviews](/episode-reviews/README.md)
 
 ---
 

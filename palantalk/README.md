@@ -2,6 +2,8 @@
 
 #### _Palantalk - where we like "tech, no fascism"_ with [Nick Paro](https://substack.com/@nickparo) and [Shane Yirak](https://substack.com/@shaneyirak).
 
+##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
+
 ##### Take a moment to subscribe to [Banner & Backbone Media](https://www.bannerandbackbone.com/) on Substack and support the growth of this new media platform.
 
 ---
@@ -12,7 +14,7 @@
 
 ---
 
-Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
+### _Banner & Backbone Authors’ Notes_
 
 _You being here shows that you have already begun the process of unfurling new Banners and forging new Backbones for a more progressive America. Please, take the time to become a paid, or free, subscriber to the Network — supporting us all and ensuring everyone in America can hear these messages._
 
