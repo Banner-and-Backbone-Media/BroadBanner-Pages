@@ -12,9 +12,9 @@
 
 #### **To Catch A Fascist**, by Christopher Mathias
 
-- [Book 4, E1](./AFBC_book4-e01_2026-02-20.md)
-- [Book 4, E2](./AFBC_book4-e02_2026-02-27.md)
-- [Book 4, E3](./AFBC_book4-e03_2026-03-13.md)
+- [Book 4, E1 - 2026-02-20](./AFBC_book4-e01_2026-02-20.md)
+- [Book 4, E2 - 2026-02-27](./AFBC_book4-e02_2026-02-27.md)
+- [Book 4, E3 - 2026-03-13](./AFBC_book4-e03_2026-03-13.md)
 
 #### **Strongmen: Mussolini to the Present**, by Ruth Ben-Ghiat
 
