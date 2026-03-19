@@ -1,10 +1,20 @@
+![Intelligent Masculinity Banner](../../assets/INTELLIGENT_MASCULINITY_BANNER.png)
+
+#### _Refusing to outsource accountability - and the discipline to live with the consequences of our actions and value_ with [Nick Paro](https://substack.com/@nickparo).
+
+##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
+
+##### Take a moment to subscribe to [Sick of this Shit Publications](https://sickofthis.substack.com/) on Substack and support the growth of this new media platform.
+
+---
+
 # CULTURE | Defining Intelligent Masculinity
 
 ## Intelligent Masculinity \#3 \- Why vagueness protects harm and precision demands accountability.
 
 One of the most reliable ways fragile masculinity avoids accountability is by refusing to be given a definition. When masculinity is left vague — purposely reduced to feelings, instincts, dominance, or traditions — it becomes impossible to challenge. Harm hides inside these vague abstractions while men are allowed to mindlessly gesticulate toward strength without ever naming what that strength actually requires of them. Vagueness does not then soften masculinity — it protects the worst expressions of it.
 
-Across the first six ***Intelligent Masculinity*** conversations, a clear understanding has emerged — when masculinity is left undefined, it always defaults to power without responsibility. It is clear that providing definition to masculinity is not merely a semantic exercise — it is a moral obligation. As Shane Yirak put it early in the series, masculinity cannot be allowed to float above consequence:
+Across the first six **_Intelligent Masculinity_** conversations, a clear understanding has emerged — when masculinity is left undefined, it always defaults to power without responsibility. It is clear that providing definition to masculinity is not merely a semantic exercise — it is a moral obligation. As Shane Yirak put it early in the series, masculinity cannot be allowed to float above consequence:
 
 “If masculinity can’t be tied directly to consequences, then it’s not worth talking about.”1
 
@@ -42,15 +52,15 @@ Eric consistently resists flashy, loud, or absolute definitions of masculinity. 
 
 This reframing matters because much of modern masculinity confuses intensity for authenticity. Rage is treated as honesty — speed is treated as decisiveness — control is treated as leadership — pinning down a definition disrupts those substitutions.
 
-This is where Evan Fields came in to complete the defining arc — forcing masculinity out of the internal and into the public. His contribution is a decisive one: masculinity is not proven by what you *believe*; rather, by what you *participate in*. Evan rejects masculinity as a private identity project altogether — instead, he sees masculinity as civic:
+This is where Evan Fields came in to complete the defining arc — forcing masculinity out of the internal and into the public. His contribution is a decisive one: masculinity is not proven by what you _believe_; rather, by what you _participate in_. Evan rejects masculinity as a private identity project altogether — instead, he sees masculinity as civic:
 
 “Values create obligations, not identities.”8
 
-Evan’s reframing removes the final escape hatch — if masculinity is something you *are*, it can easily remain untested. Whereas, if masculinity is something you *do*, it must survive friction — community, disagreement, risk, and consequence. Evan is explicit about the danger of intellectual detachment masquerading as wisdom:
+Evan’s reframing removes the final escape hatch — if masculinity is something you _are_, it can easily remain untested. Whereas, if masculinity is something you _do_, it must survive friction — community, disagreement, risk, and consequence. Evan is explicit about the danger of intellectual detachment masquerading as wisdom:
 
 “Cynicism is avoidance dressed as intelligence.”9
 
-Definition without participation is performance — participation without accountability is chaos. Intelligent masculinity required *both* — and our communities are where that balance is tested. This is taken a step further to include one of the most common ‘masculine’ emotions — anger — and Evan made sure we understood the stakes around it:
+Definition without participation is performance — participation without accountability is chaos. Intelligent masculinity required _both_ — and our communities are where that balance is tested. This is taken a step further to include one of the most common ‘masculine’ emotions — anger — and Evan made sure we understood the stakes around it:
 
 “Anger can clarify injustice, but anger without direction becomes destructive.”10
 
@@ -68,5 +78,17 @@ Masculinity that cannot be clearly named will always default to domination.
 
 Masculinity that can be clearly named must answer for itself — it is something we own.
 
-*\~Nick Paro*
+_\~Nick Paro_
 
+---
+
+### _Nick's Notes_
+
+_I’m Nick Paro, and I’m sick of the shit going on. So, I’m using poetry, podcasting, and lives to discuss the intersections of chronic illness and mental wellbeing, masculinity, veteran’s issues, politics, and so much more. I am only able to have these conversations, bring visibility to my communities, and fill the void through your support — this is a publication where engagement is encouraged, creativity is a cornerstone, and transparency is key — please consider becoming a paid subscriber today and grow the community!._
+
+##### Support as a paid subscriber however you can — to help get you started, here are a few discounted options for you
+
+- [Forever at 50% off](https://sickofthis.substack.com/50forever)
+- [Forever at 60% off](https://sickofthis.substack.com/60saver)
+
+##### For support, contact us at: info@sickofthisshitpublications.com

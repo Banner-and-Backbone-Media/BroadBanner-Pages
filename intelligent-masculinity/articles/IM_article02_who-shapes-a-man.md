@@ -1,10 +1,20 @@
+![Intelligent Masculinity Banner](../../assets/INTELLIGENT_MASCULINITY_BANNER.png)
+
+#### _Refusing to outsource accountability - and the discipline to live with the consequences of our actions and value_ with [Nick Paro](https://substack.com/@nickparo).
+
+##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
+
+##### Take a moment to subscribe to [Sick of this Shit Publications](https://sickofthis.substack.com/) on Substack and support the growth of this new media platform.
+
+---
+
 # CULTURE | Who Shapes A Man
 
 ## Intelligent Masculinity \#2 \- Inheritance, influence, and the myth of the self-made man.
 
-One of the most durable, yet destructive, myths in modern masculinity is the idea of the ruggedly individual, self-made man—the belief that a man’s character is forged **alone**, that his strength emerges when he is in **self-imposed isolation**, and that his masculinity and dominance is something he ***is due*** rather than something he must first ***inherit***, then constantly work at. This myth of being ***owed** **something*** is appealing for many because it removes responsibility for where we come from. It is also very dangerous—it allows men to reproduce and inflict harm without ever examining its source, themself.
+One of the most durable, yet destructive, myths in modern masculinity is the idea of the ruggedly individual, self-made man—the belief that a man’s character is forged **alone**, that his strength emerges when he is in **self-imposed isolation**, and that his masculinity and dominance is something he **_is due_** rather than something he must first **_inherit_**, then constantly work at. This myth of being **\*owed** **something\*** is appealing for many because it removes responsibility for where we come from. It is also very dangerous—it allows men to reproduce and inflict harm without ever examining its source, themself.
 
-Across the first five *Intelligent Masculinity* conversations, one reality has surfaced clearly again and again—masculinity does not begin with ideology, dominance, or certainty. It begins with **influence**—sometimes nurturing, sometimes absent, sometimes harmful, sometimes contradictory—the work of masculinity is not denying that inheritance, but refusing to outsource our accountability once we recognize it.
+Across the first five _Intelligent Masculinity_ conversations, one reality has surfaced clearly again and again—masculinity does not begin with ideology, dominance, or certainty. It begins with **influence**—sometimes nurturing, sometimes absent, sometimes harmful, sometimes contradictory—the work of masculinity is not denying that inheritance, but refusing to outsource our accountability once we recognize it.
 
 Shane Yirak described his father not as an idealized figure, but as a man who changed—and that distinction and understanding towards growth mattered more than a mythologized perfection. As Shane recounted,
 
@@ -16,7 +26,7 @@ For Sharad Swaney, this story of inheritance looks drastically different. His fa
 
 “I had to figure out how to be my own father.”2
 
-There is no romanticism in Sharad’s statement—it is a raw acknowledgment of *necessity*. Sharad did not inherit a stable model of masculinity—he inherited a vacuum. Yet, what matters most in Sharad’s story is not that this absence existed; rather, that he refused to let it become an excuse for avoidance or cruelty. Sharad names the cost of unexamined inheritance directly:
+There is no romanticism in Sharad’s statement—it is a raw acknowledgment of _necessity_. Sharad did not inherit a stable model of masculinity—he inherited a vacuum. Yet, what matters most in Sharad’s story is not that this absence existed; rather, that he refused to let it become an excuse for avoidance or cruelty. Sharad names the cost of unexamined inheritance directly:
 
 “Finding myself meant rejecting the idea that masculinity was about hiding emotions. That model didn’t survive reality.”3
 
@@ -44,7 +54,7 @@ The masculinity Eric described is not a reactive one—it is patient and proacti
 
 “Leadership begins with self-regulation.”8
 
-What emerges across these first five conversations is not a single masculine archetype—instead, we see a shared refusal to outsource responsibility where fathers matter, absence matters, women matter, mentors matter, people matter, and failures matter—and that *inheritance*, no matter how formative, is not destiny. It requires constant vigilance and daily practice—accountability begins where explanation ends. Shane framed it plainly:
+What emerges across these first five conversations is not a single masculine archetype—instead, we see a shared refusal to outsource responsibility where fathers matter, absence matters, women matter, mentors matter, people matter, and failures matter—and that _inheritance_, no matter how formative, is not destiny. It requires constant vigilance and daily practice—accountability begins where explanation ends. Shane framed it plainly:
 
 “If you don’t stop and reflect, you just become a vessel for whatever shaped you—and that’s not strength.”9
 
@@ -54,5 +64,17 @@ The **self-made man** is a myth—the **self-governed man** is not.
 
 Inheritance becomes just the starting line—not the finish.
 
-*\~*Nick Paro
+_\~Nick Paro_
 
+---
+
+### _Nick's Notes_
+
+_I’m Nick Paro, and I’m sick of the shit going on. So, I’m using poetry, podcasting, and lives to discuss the intersections of chronic illness and mental wellbeing, masculinity, veteran’s issues, politics, and so much more. I am only able to have these conversations, bring visibility to my communities, and fill the void through your support — this is a publication where engagement is encouraged, creativity is a cornerstone, and transparency is key — please consider becoming a paid subscriber today and grow the community!._
+
+##### Support as a paid subscriber however you can — to help get you started, here are a few discounted options for you
+
+- [Forever at 50% off](https://sickofthis.substack.com/50forever)
+- [Forever at 60% off](https://sickofthis.substack.com/60saver)
+
+##### For support, contact us at: info@sickofthisshitpublications.com

@@ -1,3 +1,13 @@
+![Intelligent Masculinity Banner](../../assets/INTELLIGENT_MASCULINITY_BANNER.png)
+
+#### _Refusing to outsource accountability - and the discipline to live with the consequences of our actions and value_ with [Nick Paro](https://substack.com/@nickparo).
+
+##### Check out the new [Broad Banner](https://www.broadbanner.com/) network and affiliate calendar!
+
+##### Take a moment to subscribe to [Sick of this Shit Publications](https://sickofthis.substack.com/) on Substack and support the growth of this new media platform.
+
+---
+
 # CULTURE | Disciplined & Practiced
 
 ## Intelligent Masculinity \#4 \- The daily actions that make values real
@@ -8,19 +18,19 @@ We started this series with a thesis:
 
 “Intelligent masculinity is the refusal to outsource accountability onto others—and the discipline to live with the consequences of your actions and values.”1
 
-Through the first 3 articles—[*Masculinity and the Lie of Outsourced Accountability*](https://sickofthis.substack.com/p/masculinity-and-the-lie-of-outsourced), [*Who Shapes A Man*](https://sickofthis.substack.com/p/who-shapes-a-man)*, and [Defining Intelligent Masculinity](https://sickofthis.substack.com/p/defining-intelligent-masculinity)*—we have clarified this definition. Now, we do the heavy lifting: we treat masculinity as an *active* *practice* instead of a *passive* *identity*. Frederic Poag’s framing provides us with the perfect entry point into this practice—he rejects the modern temptation to treat masculinity as a self-expression. Instead, he describes it as something *more*—stewardship—and stewardship is always a *disciplined practice*. It’s the obligation to remain reliable when you’re tired, frustrated, unseen, and un-praised. Frederic says:
+Through the first 3 articles—[_Masculinity and the Lie of Outsourced Accountability_](https://sickofthis.substack.com/p/masculinity-and-the-lie-of-outsourced), [_Who Shapes A Man_](https://sickofthis.substack.com/p/who-shapes-a-man)_, and [Defining Intelligent Masculinity](https://sickofthis.substack.com/p/defining-intelligent-masculinity)_—we have clarified this definition. Now, we do the heavy lifting: we treat masculinity as an _active_ _practice_ instead of a _passive_ _identity_. Frederic Poag’s framing provides us with the perfect entry point into this practice—he rejects the modern temptation to treat masculinity as a self-expression. Instead, he describes it as something _more_—stewardship—and stewardship is always a _disciplined practice_. It’s the obligation to remain reliable when you’re tired, frustrated, unseen, and un-praised. Frederic says:
 
 “Masculinity that lasts isn’t built in moments of intensity—it’s built in repetition, consistency, and the willingness to be accountable even when no one is applauding.”2
 
 That’s the philosophical pivot point: **discipline isn’t intensity, it’s continuity**. It’s the willingness to be the same person on the boring days too.
 
-Discipline is often purposely misconstrued because *fragile masculinity* worships the **appearance of control** while avoiding the internal work required to actually achieve that control. We are living through an age where men are trained to confuse **dominance** with **strength**—while ‘discipline’ becomes just another way to control others, rather than regulating one’s self.
+Discipline is often purposely misconstrued because _fragile masculinity_ worships the **appearance of control** while avoiding the internal work required to actually achieve that control. We are living through an age where men are trained to confuse **dominance** with **strength**—while ‘discipline’ becomes just another way to control others, rather than regulating one’s self.
 
 So what do we do about it? First, we collapse this confusion into a simple, clear idea outlined by Dr. Eric Lullove:
 
 “Power without restraint is destruction.”3
 
-His statement is more than a piece of moral advice—it’s a reality check about what power *does* when it’s ungoverned and unaccountable. In *intelligent masculinity*, discipline is what turns power into protection while replacing the harm.
+His statement is more than a piece of moral advice—it’s a reality check about what power _does_ when it’s ungoverned and unaccountable. In _intelligent masculinity_, discipline is what turns power into protection while replacing the harm.
 
 Restraint and self-control aren’t weaknesses—they’re the foundations of the ethical container that keeps strength from becoming a weapon. Restraint and self-control aren’t abstractions either—they’re behavioral. They manifest as living mindfully—finding the balance on the scales between our intelligent mind and our emotion mind—the **wise mind**—while knowing that that balance is a sliding scale. That scale appears as the pause before the text, the breath before the reply, the ability to slow down in conflict so you don’t punish someone else with your nervous system.
 
@@ -34,7 +44,7 @@ Sharad Swaney’s story adds something that many men often forget: discipline is
 
 “I had to figure out how to be my own father.”5
 
-That isn’t motivational. It’s costly. But it produces a particular kind of masculine clarity: the recognition and acceptance that nobody is coming to do the inner work for you. Discipline becomes the bridge between who you were shaped to be and who you choose to become. Sharad’s arc reinforces the core theme of intelligent masculinity: *responsibility without shame*. You don’t punish yourself into growth—you **train** yourself into it.
+That isn’t motivational. It’s costly. But it produces a particular kind of masculine clarity: the recognition and acceptance that nobody is coming to do the inner work for you. Discipline becomes the bridge between who you were shaped to be and who you choose to become. Sharad’s arc reinforces the core theme of intelligent masculinity: _responsibility without shame_. You don’t punish yourself into growth—you **train** yourself into it.
 
 Lawrence Winnerman gives us the daily nuances of that training. He refuses the idea that intelligent masculinity can be reduced to a tidy definition—it has to be lived, chosen, and practiced. This texture is best said in Lawrence’s words:
 
@@ -64,7 +74,7 @@ Tim Fullerton layers in an essential civic dimension: discipline isn’t just pe
 
 “We are building content to appeal to men, which we hopefully think will move more of them to our side on the left.”11
 
-That’s not just strategy. That’s accountability at scale: refusing to outsource the work of persuasion, refusing to abandon men to grievance ecosystems, refusing to treat masculinity as someone else’s problem. This is one of the heaviest philosophical points in the whole project: *a man’s discipline is not only what he does when tempted—it’s also what he refuses to let become normal around him.*
+That’s not just strategy. That’s accountability at scale: refusing to outsource the work of persuasion, refusing to abandon men to grievance ecosystems, refusing to treat masculinity as someone else’s problem. This is one of the heaviest philosophical points in the whole project: _a man’s discipline is not only what he does when tempted—it’s also what he refuses to let become normal around him._
 
 With that in mind, what is the ‘philosophical heavy lifting’ of discipline?
 
@@ -84,7 +94,19 @@ Evan Fields’ obligations become the civic container.
 
 Tim Fullerton’s narrative work becomes the cultural container.
 
-In other words: *discipline is not just **one** thing*—it is the **full architecture of accountable masculinity**.
+In other words: _discipline is not just **one** thing_—it is the **full architecture of accountable masculinity**.
 
-*\~Nick Paro*
+_\~Nick Paro_
 
+---
+
+### _Nick's Notes_
+
+_I’m Nick Paro, and I’m sick of the shit going on. So, I’m using poetry, podcasting, and lives to discuss the intersections of chronic illness and mental wellbeing, masculinity, veteran’s issues, politics, and so much more. I am only able to have these conversations, bring visibility to my communities, and fill the void through your support — this is a publication where engagement is encouraged, creativity is a cornerstone, and transparency is key — please consider becoming a paid subscriber today and grow the community!._
+
+##### Support as a paid subscriber however you can — to help get you started, here are a few discounted options for you
+
+- [Forever at 50% off](https://sickofthis.substack.com/50forever)
+- [Forever at 60% off](https://sickofthis.substack.com/60saver)
+
+##### For support, contact us at: info@sickofthisshitpublications.com
