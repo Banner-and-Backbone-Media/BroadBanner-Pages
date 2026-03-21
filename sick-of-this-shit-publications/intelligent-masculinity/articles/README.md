@@ -1,4 +1,5 @@
 <!-- bb:header:start -->
+
 ![Intelligent Masculinity Banner](../../../assets/INTELLIGENT_MASCULINITY_BANNER.png)
 
 #### _Refusing to outsource accountability - and the discipline to live with the consequences of our actions and value_ with [Nick Paro](https://substack.com/@nickparo).
@@ -8,7 +9,9 @@
 ##### Take a moment to subscribe to [Sick of this Shit Publications](https://sickofthis.substack.com/) on Substack and support the growth of this new media platform.
 
 ---
+
 <!-- bb:header:end -->
+
 
 ## Written Articles
 
@@ -21,6 +24,7 @@
 ---
 
 <!-- bb:footer:start -->
+
 #### **Actions You Can Take**
 
 - Check out the new: [Sick of this Shop\!](https://shop.sickofthisshitpublications.com/)
@@ -59,4 +63,5 @@ _I’m Nick Paro, and I’m sick of the shit going on. So, I’m using poetry, p
 - [Forever at 60% off](https://sickofthis.substack.com/60saver)
 
 ##### For support, contact us at: [info@sickofthisshitpublications.com](mailto:info@sickofthisshitpublications.com)
+
 <!-- bb:footer:end -->

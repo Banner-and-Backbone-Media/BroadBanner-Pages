@@ -34,6 +34,7 @@
 - [#18 - Joe Plenzler](./IM_s1e18_joe-plenzler.md)
 - [#19 - Steven Acheson](./IM_s1e19_steven-acheson.md)
 - [#20 - Pete Dominick](./IM_s1e20_pete-dominick.md)
+- [#21 - Wajahat Ali](./s1e21-wajahat-ali.md)
 
 ---
 
