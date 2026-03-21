@@ -3,6 +3,8 @@
 
 ## Episode Review Articles
 
+### Season 1
+
 - [E1 - Shane Yirak](./s1e01-shane-yirak.md)
 - [E2 - Sharad Swaney](./s1e02-sharad-swaney.md)
 - [E3 - Lawrence Winnerman](./s1e03-lawrence-winnerman.md)
