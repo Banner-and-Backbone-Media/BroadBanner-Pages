@@ -6,6 +6,7 @@
 ## Join in with Nick Paro and The Opinionated Ogre for a better humaning conversation centered in awareness of power and space, generational repair, and the discipline of not becoming a threat.
 
 > _“I’m a big guy. I take up space whether I want to or not. Intelligent masculinity means understanding what that looks like to other people and moving through the world with that in mind. I don’t get to pretend I’m not threatening just because I don’t mean to be. With the power I have comes the responsibility not to abuse it—especially in a world already designed to cater to my ego.”_
+>
 > _\~ The Opinionated Ogre \~_
 
 Take a dive into The Opinionated Ogre’s backstory — be forewarned this article contains instances of child abuse, both physical and emotional — [_“I’m Not Your Biological Father” \- My Life As A Jerry Springer Episode_](https://opinionatedogre.substack.com/p/im-not-your-biological-father-my).

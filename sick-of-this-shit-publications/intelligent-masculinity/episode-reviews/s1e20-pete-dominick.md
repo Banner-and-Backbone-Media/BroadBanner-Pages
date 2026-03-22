@@ -6,6 +6,7 @@
 ## Join in with Nick Paro and Pete Dominick for a better humaning conversation centered on acting on principles, providing consistent presence, and a bias for decency.
 
 > _"She got really upset with me. She was like, you're talking down to me in front of my boyfriend. And she was absolutely right. And I just gave her a full-throated apology — to her face, then again later in a text message. I made sure not to defend myself in any way. None of that. Apologize fully without defending yourself. Do it in such a way that it is definitely sincere and you will build every relationship. I think people view that as strength because it's being decent. And that is so much stronger in my mind than someone who doesn't do that or someone that doesn't have that as a guiding principle and practice in their life. To be conciliatory, to apologize, and to mean it is a hard thing to do. But if you do it, you're a better person, certainly a stronger man."_
+>
 > \~ STAND UP\! With Pete Dominick \~
 
 ### **Masculinity In Review**

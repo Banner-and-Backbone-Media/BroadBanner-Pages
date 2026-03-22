@@ -6,6 +6,7 @@
 ## Join in with Nick Paro and Marlon Weems for a better humaning conversation centered on restraint, personal evolution, and the discipline of self-reflection.
 
 > _“If I got pissed off every time something like that happened, I’d just run my own blood pressure up. Writing about it lets me examine it. Sometimes I realize I was wrong. Sometimes I realize I reacted better than I would have years ago. But I try to be honest with myself — because if you’re not honest with yourself, you’re not growing.”_
+>
 > _\~ Marlon Weems \~_
 
 ### **Masculinity In Review**

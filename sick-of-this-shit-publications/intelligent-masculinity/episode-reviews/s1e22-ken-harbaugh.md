@@ -6,6 +6,7 @@
 ## Join in with Nick Paro and Ken Harbaugh for a better humaning conversation centered on courage, continued service, and redefining success.
 
 > _“At its core, toxic masculinity — the opposite of intelligent masculinity or positive masculinity — is about cowardice. And you can push insecurity and overcompensating and all of that into it, but I think if you frame it in terms of cowardice, it not only skewers the performative cosplay of the Pete Hegseths and the Mark Wayne Mullins, it allows viewers and fans and others to begin to see it when it crops up. And I'm thinking just in one instance of that picture of Mark Wayne Mullin — like the epitome of performative masculinity — standing up in a Senate hearing, challenging the head of the Teamsters to a fight, talking about being downrange on a mission so classified that he can't talk to senators about it. And yet there's that photo of him on January 6th, cowering behind the real men defending him and his colleagues. He is not at the tip of the spear. He is literally cowering. And that to me is a great picture of that fundamental truth about toxic masculinity, which is that it's about cowardice.”_
+>
 > _\~ Ken Harbaugh \~_
 
 ### Masculinity In Review

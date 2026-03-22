@@ -6,6 +6,7 @@
 ## Join in with Nick Paro with Tim Fullerton for a better humaning conversation centered in accountability, kindness, and the responsibility of influence.
 
 > “There is a massive void in how men are being spoken to, and it’s being filled by people who are feeding young men a lie—that being a man means being rich, jacked, dominant, and cruel. If you have a platform and you don’t try to counter that, you’re letting it happen. We don’t need one group to succeed—we need hundreds, thousands of men showing a different version of masculinity, one rooted in kindness, accountability, and actually giving a damn about other people.”
+>
 > \~ Tim Fullerton \~
 
 ### **Masculinity In Review**

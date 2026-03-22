@@ -6,6 +6,7 @@
 ## Join in with Nick Paro and Kristofer Goldsmith for a better humaning conversation centered in self-reflection, accountable authenticity, and the courage to remember the importance of one's self.
 
 > “For a long time, I thought putting myself first was selfish. Becoming a father taught me that taking care of yourself is not selfish when other people depend on you. I can do more good now, with less risk to myself and my family, because I finally accepted that survival is part of responsibility.”
+>
 > \~ Kristofer Goldsmith \~
 
 ### **Masculinity In Review**

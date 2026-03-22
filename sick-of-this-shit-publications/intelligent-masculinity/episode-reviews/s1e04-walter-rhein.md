@@ -8,6 +8,7 @@
 ### **Masculinity in Review**
 
 > _"You can be loved even as a flawed person."_
+>
 > _\~ Walter Rhein \~_
 
 In this 4th interview for the _Intelligent Masculinity_ series, I (Nick Paro) and Walter Rhein dive into a raw conversation about abuse, accountability, fatherhood, and the moral courage required to break generational trauma cycles. Through Walter’s personal storytelling and our reflective analysis, we further clarify that **intelligent masculinity** is not about **perfection or dominance** — it is about refusing to outsource accountability, setting immovable boundaries, and choosing not to pass harm forward.

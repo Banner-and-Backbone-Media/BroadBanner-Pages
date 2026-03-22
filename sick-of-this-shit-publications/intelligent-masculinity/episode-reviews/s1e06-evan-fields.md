@@ -6,6 +6,7 @@
 ## Join in with Nick Paro with Evan Fields for a better humaning conversation centered in accountability as an action, confronting anger, and reflection as a superpower.
 
 > _“Challenge yourself to do better and be more”_
+>
 > _\~ Evan Fields \~_
 
 ### **Masculinity In Review**

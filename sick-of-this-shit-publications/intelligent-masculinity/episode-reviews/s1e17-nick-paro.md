@@ -6,6 +6,7 @@
 ## Join in with Shane Yirak and Nick Paro for a better humaning conversation centered on conviction, discipline, and building a framework that outlives you.
 
 > _“Ego wants to win arguments. Discipline wants to build something that lasts. The problem with ego-driven masculinity is that it’s loud but fragile. Discipline is quiet, but it compounds. It shows up every day. It doesn’t need applause. And it doesn’t collapse when someone disagrees with you.”_
+>
 > _\~ Nick Paro \~_
 
 ### **Masculinity In Review**
