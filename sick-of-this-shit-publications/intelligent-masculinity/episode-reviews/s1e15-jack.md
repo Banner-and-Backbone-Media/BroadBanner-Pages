@@ -5,8 +5,8 @@
 
 ## Join in with Nick Paro and Jack for a better humaning conversation centered on surviving abuse, refusing to pass on trauma, and building a masculinity on safety.
 
-“Growing up with an abusive father gave me a very clear example of what masculinity can become when it’s rooted in control and fear. I watched how anger was used as power. And I made a conscious decision that if I was going to live as a man, I was not going to live like that. I wasn’t going to repeat it. I had to build something different — something steadier, something safer.”  
-\~ Jack \~
+> _“Growing up with an abusive father gave me a very clear example of what masculinity can become when it’s rooted in control and fear. I watched how anger was used as power. And I made a conscious decision that if I was going to live as a man, I was not going to live like that. I wasn’t going to repeat it. I had to build something different — something steadier, something safer.”_
+> _\~ Jack \~_
 
 ### **Masculinity In Review**
 

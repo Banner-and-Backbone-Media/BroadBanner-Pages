@@ -5,8 +5,8 @@
 
 ## Join in with Nick Paro and Arturo Dominguez for a better humaning conversation centered on community over individualism, culture over purity, and respect over machismo.
 
-**“Intelligent masculinity is really nothing more than common sense. You want respect? You have to give it. You can’t say toxic masculinity means all masculinity is toxic—that’s not what it means. It means stripping away the parts that harm people. You can be strong, protective, rational, and compassionate at the same time.”**  
-\~ Arturo Dominguez **\~**
+> _“Intelligent masculinity is really nothing more than common sense. You want respect? You have to give it. You can’t say toxic masculinity means all masculinity is toxic—that’s not what it means. It means stripping away the parts that harm people. You can be strong, protective, rational, and compassionate at the same time.”_
+> _\~ Arturo Dominguez \~_
 
 ### **Masculinity In Review**
 

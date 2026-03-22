@@ -7,9 +7,8 @@
 
 ### **Masculinity in Review**
 
-“Power without restraint is destruction.”
-
-\~ Dr. Eric Lullove
+> _“Power without restraint is destruction.”_
+> _\~ Dr. Eric Lullove \~_
 
 In this fifth interview of _Intelligent Masculinity_, I (Nick Paro) and Dr. Eric Lullove explore masculinity from a slightly different angle than before — as **patience in action**. Through reflections on Eric’s own experiences with fatherhood, medicine, loss, partnership, and self-regulation, we reframe strength as restraint, leadership as modeling, and accountability as an internal discipline rather than a performance for the public. Eric provides another dimension to intelligent masculinity — not through urgency or dominance; rather, a consistent, measured presence over time.
 

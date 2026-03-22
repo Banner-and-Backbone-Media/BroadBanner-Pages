@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Steven Acheson for a better humaning conversation centered on carrying trauma, intent in words and actions, and the knowledge that masculinity is a practice.
 
-“It really goes back to watching men perform badly throughout my life — men who have been my father figures more or less, who in various ways succeeded, but in various ways failed to step up to the moments and been absent when they shouldn’t have been. And I just never wanted my stepson or my biological son to ever feel like they were alone and didn’t have somebody there to support them and to be there for them along the way. So I made a conscious promise to myself that I was going to be a better dad than the men I’ve had as father figures in my life.”
-
-\~ Steven Acheson \~
+> _“It really goes back to watching men perform badly throughout my life — men who have been my father figures more or less, who in various ways succeeded, but in various ways failed to step up to the moments and been absent when they shouldn’t have been. And I just never wanted my stepson or my biological son to ever feel like they were alone and didn’t have somebody there to support them and to be there for them along the way. So I made a conscious promise to myself that I was going to be a better dad than the men I’ve had as father figures in my life.”_
+> _\~ Steven Acheson \~_
 
 ### **Masculinity In Review**
 

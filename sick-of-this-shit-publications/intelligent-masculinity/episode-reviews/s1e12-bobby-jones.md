@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Bobby Jones for a better humaning conversation centered on service, resilience, and defining The Dash.
 
-“When you die, there’s a birth year, a death year, and the dash in between. How did you define the dash? Did you maximize your time to help other people? Because you can slap your name on a building, but buildings fall. What lasts is how you conducted yourself and who you lifted while you were here.”
-
-\~ Bobby Jones \~
+> _“When you die, there’s a birth year, a death year, and the dash in between. How did you define the dash? Did you maximize your time to help other people? Because you can slap your name on a building, but buildings fall. What lasts is how you conducted yourself and who you lifted while you were here.”_
+> _\~ Bobby Jones \~_
 
 ### **Masculinity In Review**
 

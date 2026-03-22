@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Joe Plenzler for a better humaning conversation centered on moral clarity, conscience, and demanding responsibility from the institutions that shape us.
 
-“In order to be good, you have to do good, and \[this\] definition of evil is more like Edmund Burke. It’s the ability to do good and \[then\] not doing it. So evil doesn’t have to be a specific act. It just has to be the ability to make a better decision and choosing not to.”
-
-\~ Joe Plenzler \~
+> _“In order to be good, you have to do good, and \[this\] definition of evil is more like Edmund Burke. It’s the ability to do good and \[then\] not doing it. So evil doesn’t have to be a specific act. It just has to be the ability to make a better decision and choosing not to.”_
+> _\~ Joe Plenzler \~_
 
 ## **Masculinity In Review**
 

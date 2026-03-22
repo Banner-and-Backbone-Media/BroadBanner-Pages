@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Qasim Rashid, Esq. for a better humaning conversation centered on faith, restraint, and the discipline of service.
 
-“There’s no such thing as serving God without first serving humanity… If your religiosity doesn’t translate into dignity and care for your neighbor, then it’s just ego. There are no asterisks on humanity."
-
-\~ Qasim Rashid, Esq. \~
+> _“There’s no such thing as serving God without first serving humanity… If your religiosity doesn’t translate into dignity and care for your neighbor, then it’s just ego. There are no asterisks on humanity."_
+> _\~ Qasim Rashid, Esq. \~_
 
 ### **Masculinity In Review**
 

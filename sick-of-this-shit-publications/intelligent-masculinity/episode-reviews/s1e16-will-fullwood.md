@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Will Fullwood for a better humaning conversation centered on integrity, accountability, and showing up when it’s hard.
 
-“A lot of people think masculinity is about these big moments — but it’s really about the small ones. It’s whether you keep your word. Whether you stay consistent. Whether you choose discipline when no one would notice if you didn’t. That’s what builds trust. That’s what builds character.”
-
-\~ Will Fullwood \~
+> _“A lot of people think masculinity is about these big moments — but it’s really about the small ones. It’s whether you keep your word. Whether you stay consistent. Whether you choose discipline when no one would notice if you didn’t. That’s what builds trust. That’s what builds character.”_
+> _\~ Will Fullwood \~_
 
 ### **Masculinity In Review**
 

@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro and Wajahat Ali for a better humaning conversation centered on a prophetic model of masculinity, self-reflection, and why knowing yourself is the foundation of masculine virtue.
 
-“I would add another aspect of intelligent masculinity — spending time knowing yourself. There's a great saying in Islam, and it's in most traditional traditions: know yourself and you'll know your creator. And this includes knowing the bad parts of yourself, the weak parts of yourself, the messy parts of yourself. That requires radical honesty with yourself. Where am I good? What am I bad at? What do I take pride in? Where can I get better? Maybe it's not the women's fault. Maybe it's not the immigrants' fault. Maybe there's something inside me — something broken, or maybe I'm projecting something, maybe there's an insecurity. That's an intelligent aspect of masculinity — which is why it's so frightening that Marc Andreessen, one of the broligarchs, is literally saying he's not into self-reflection.”
-
-\~ THE LEFT HOOK with Wajahat Ali \~
+> _“I would add another aspect of intelligent masculinity — spending time knowing yourself. There's a great saying in Islam, and it's in most traditional traditions: know yourself and you'll know your creator. And this includes knowing the bad parts of yourself, the weak parts of yourself, the messy parts of yourself. That requires radical honesty with yourself. Where am I good? What am I bad at? What do I take pride in? Where can I get better? Maybe it's not the women's fault. Maybe it's not the immigrants' fault. Maybe there's something inside me — something broken, or maybe I'm projecting something, maybe there's an insecurity. That's an intelligent aspect of masculinity — which is why it's so frightening that Marc Andreessen, one of the broligarchs, is literally saying he's not into self-reflection.”_
+> _\~ THE LEFT HOOK with Wajahat Ali \~_
 
 ### **Masculinity In Review**
 

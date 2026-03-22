@@ -5,9 +5,8 @@
 
 ## Join in with Nick Paro with Frederic Poag for a better humaning conversation centered in stewardship. emotional regulation, and community responsibility.
 
-“The strongest men I know aren’t loud, reactive, or constantly proving something. They’re calm. And that calm creates safety. People watch what you tolerate, how you handle pressure, how you respond when you’re tired or frustrated. That’s the real mentorship. Masculinity that lasts isn’t built in moments of intensity—it’s built in repetition, consistency, and the willingness to be accountable even when no one is applauding.”
-
-\~ Frederic Poag \~
+> “The strongest men I know aren’t loud, reactive, or constantly proving something. They’re calm. And that calm creates safety. People watch what you tolerate, how you handle pressure, how you respond when you’re tired or frustrated. That’s the real mentorship. Masculinity that lasts isn’t built in moments of intensity—it’s built in repetition, consistency, and the willingness to be accountable even when no one is applauding.”
+> \~ Frederic Poag \~
 
 ### **Masculinity In Review**
 
