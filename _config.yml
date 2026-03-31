@@ -31,3 +31,7 @@ defaults:
       path: "banner-and-backbone-media/palantalk"
     values:
       layout: "palantalk"
+  - scope:
+      path: "firebrand-project"
+    values:
+      layout: "firebrand-project"
