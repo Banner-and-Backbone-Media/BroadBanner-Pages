@@ -1,9 +1,10 @@
 ---
-layout: firebrand-project
+layout: default
 ---
-
-{% include header.md %}
+{% capture header_content %}{% include firebrand-project-header.md %}{% endcapture %}
+{{ header_content | markdownify }}
 
 {{ content }}
 
-{% include footer.md %}
+{% capture footer_content %}{% include firebrand-project-footer.md %}{% endcapture %}
+{{ footer_content | markdownify }}
