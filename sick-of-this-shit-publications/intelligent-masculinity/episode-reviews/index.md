@@ -31,5 +31,6 @@
 - [E22 \- Ken Harbaugh](./s1e22-ken-harbaugh.md)
 - [E23 \- Matt Gordon](./s1e23-matt-gordon.md)
 - [E24 \- Joe Walsh](./s1e24-joe-walsh.md)
+- [E25 \- Forrest Page](./s1e25-forrest-page.md)
 
 ---
