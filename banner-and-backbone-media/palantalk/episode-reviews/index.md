@@ -12,5 +12,6 @@
 - [E31 \- The War Wages On](./s1e31-the-war-wages-on.md)
 - [E32 \- Our Tech and Tools](./s1e32-our-tech-and-tools.md)
 - [E33 \- Bomb First and Ask No Questions](./s1e33-bomb-first-and-ask-no-questions.md)
+- [E34 \- Buying the Infrastructure of a Nation](./s1e34-buying-the-infrastructure-of-a-nation.md)
 
 ---
