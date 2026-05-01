@@ -43,3 +43,7 @@ defaults:
       path: "levremembers"
     values:
       layout: "levremembers"
+  - scope:
+      path: "lev-remembers"
+    values:
+      layout: "lev-remembers"
