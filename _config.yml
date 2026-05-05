@@ -40,10 +40,6 @@ defaults:
     values:
       layout: "this-woman-votes"
   - scope:
-      path: "levremembers"
-    values:
-      layout: "levremembers"
-  - scope:
       path: "lev-remembers"
     values:
       layout: "lev-remembers"
