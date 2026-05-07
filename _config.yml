@@ -39,3 +39,7 @@ defaults:
       path: "this-woman-votes"
     values:
       layout: "this-woman-votes"
+  - scope:
+      path: "lev-remembers"
+    values:
+      layout: "lev-remembers"
