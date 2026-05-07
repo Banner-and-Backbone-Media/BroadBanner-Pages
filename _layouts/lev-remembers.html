@@ -1,0 +1,10 @@
+---
+layout: default
+---
+{% capture header_content %}{% include lev-remembers-header.md %}{% endcapture %}
+{{ header_content | markdownify }}
+
+{{ content }}
+
+{% capture footer_content %}{% include lev-remembers-footer.md %}{% endcapture %}
+{{ footer_content | markdownify }}
