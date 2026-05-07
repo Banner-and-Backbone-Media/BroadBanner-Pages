@@ -1,0 +1,10 @@
+---
+layout: banner-and-backbone-media
+---
+{% capture header_content %}{% include anti-fascist-book-club-header.md %}{% endcapture %}
+{{ header_content | markdownify }}
+
+{{ content }}
+
+{% capture footer_content %}{% include anti-fascist-book-club-footer.md %}{% endcapture %}
+{{ footer_content | markdownify }}
